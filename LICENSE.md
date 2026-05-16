@@ -1,4 +1,4 @@
-
+automatic Atlas VPN Addon | ad-blocker + 24/7-support is the best Atlas VPN addon, featuring ad-blocker and 24/7-support. Secure, fast, and optimized for privacy.
 
 
 
